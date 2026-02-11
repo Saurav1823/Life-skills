@@ -92,4 +92,4 @@ To make communication assertive, I can:
 5. Set clear boundaries without being rude.
 6. Listen actively before responding.
 
-Assertive communication balances confidence and respect. It helps build healthy relationships and improves teamwork in both personal and professional environments.
+
